@@ -1,0 +1,1 @@
+One of my first programs every made. It is bad, but I was 15 or 14 back then.
